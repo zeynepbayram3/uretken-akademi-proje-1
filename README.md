@@ -1,1 +1,1 @@
-# uretken-akadmi-proje-1
+# uretken-akadami-proje-1
